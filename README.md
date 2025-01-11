@@ -1,4 +1,4 @@
-# Breaking News: nimra mehra job hunting Viral Video Featuring Nimra Mehra Sparks Widespread Attention Online
+# Breaking News: Nimra Mehra Job Hunting | Viral Video Featuring Nimra Mehra Sparks Widespread Attention Online
 
 **Good evening and welcome to tonight’s broadcast.**
 
